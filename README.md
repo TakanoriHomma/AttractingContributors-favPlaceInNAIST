@@ -58,4 +58,4 @@ Together, let's spread the word about our college campuses and share our memorie
 7. 談話室
 8. Pond Area is very soothing and calm
 9. The slope between the tennis courts and th ground
-10.　
+10. library
